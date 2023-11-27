@@ -1,2 +1,1 @@
-# second-choice
-segunda oportunidad de coronar
+dale dale ve, donde estes estare
